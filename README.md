@@ -7,3 +7,5 @@ receta de alfajores
 2. congiue pollo
 3. el pollo lo pones a cocer
 4. deshebras el pollo
+5. rellennos los tacos
+6. ponesa  ferir los tacos
