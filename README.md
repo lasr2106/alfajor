@@ -7,5 +7,7 @@ receta de alfajores
 2. consigue pollo
 3. el pollo lo pones a cocer
 4. deshebras el pollo
-5. rellennos los tacos
-6. ponesa  ferir los tacos
+5. Calienta las tortillas antes
+6. rellennos los tacos
+7. ponesa  ferir los tacos
+8. Enfria los tacos por 5 minutos
